@@ -63,8 +63,10 @@
 
 [![grupo-vs-equipo-coaching](images/grupo-vs-equipo-coaching.png)](http://filocoaching.com/)
 
+[![Nunca despidas a nadie a quien te puedas imaginar haciendote la competencia](tenerife/wp-content/uploads/2016/05/nunca-despidas.jpg)](https://www.fmabogados.com/tenerife/mejor-despacho-abogados/)
+
 <blockquote class="twitter-tweet tw-align-center" data-lang="es"><p lang="es" dir="ltr">El enchufe como síntoma de un país estancado  <a href="https://t.co/mFIweLJLX9">https://t.co/mFIweLJLX9</a> Blog de <a href="https://twitter.com/jotaicabrera">@jotaicabrera</a> <a href="https://t.co/fRjzg0WPCr">pic.twitter.com/fRjzg0WPCr</a></p>&mdash; El Huffington Post (@ElHuffPost) <a href="https://twitter.com/ElHuffPost/status/704276216514269184">29 de febrero de 2016</a></blockquote>
-<script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
+<script async src="//platform.witter.com/widgets.js" charset="utf-8"></script>
 
 <blockquote class="twitter-tweet tw-align-center" data-lang="es"><p lang="es" dir="ltr">El indeseable resurgir del enchufe en el mundo laboral: <a href="http://t.co/KsTzPqOD4c">http://t.co/KsTzPqOD4c</a> Enchufados. Ya tiene su tiempo, pero merece la pena leerlo.</p>&mdash; No conosco (@Noconozco) <a href="https://twitter.com/Noconozco/status/466141188316090368">13 de mayo de 2014</a></blockquote><script async src="//platform.twitter.com/widgets.js" charset="utf-8"></script>
 
